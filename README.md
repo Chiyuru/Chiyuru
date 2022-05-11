@@ -1,3 +1,3 @@
 - JUST CHIYURU(x)
-- A freshman learning statistics at THU~
+- A freshman learning Mathmatics,Physics and Statistics at THU~
 - too naive > <
