@@ -1,2 +1,3 @@
 - JUST CHIYURU(x)
-- A naive girl learning statistics at THU~
+- A freshman learning statistics at THU~
+- too naive > <
