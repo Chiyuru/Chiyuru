@@ -1,3 +1,1 @@
-- JUST CHIYURU(x)
-- A sophomore learning Mathmatics,Physics and Statistics at THU~
-- too naive > <
+
